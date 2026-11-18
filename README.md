@@ -1,4 +1,4 @@
-## Hi there 👋
+## Bachelor’s degree candidate in energy engineering with a passion for financial markets
 
 <!--
 **AndreaMatulli/AndreaMatulli** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
